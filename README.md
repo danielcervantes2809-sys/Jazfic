@@ -1,2 +1,2 @@
 # Jazfic
-Jazfic es una marca de ropa deribada de 
+Jazfic es una marca de ropa deribada de Grupo IDC
